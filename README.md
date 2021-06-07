@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BLE-B
+- 👋 Hej, I’m Edgar (or @BLE-B)
 - 👀 I’m interested in stuff
 - 🌱 I’m currently learning stuff
 - 💞️ I’m looking to collaborate on even more stuff
